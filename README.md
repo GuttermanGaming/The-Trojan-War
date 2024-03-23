@@ -1,0 +1,1 @@
+Funny shitty game. ._.
